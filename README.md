@@ -13,4 +13,4 @@
 
 - 오오오오 되는건가???
 
-![[amad1.png]]
+![[silhum/amad1.png]]
