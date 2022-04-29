@@ -15,4 +15,4 @@
 
 ![[silhum/amad1.png]]
 
-
+보여주기
